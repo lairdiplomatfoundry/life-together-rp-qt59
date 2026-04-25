@@ -1,4 +1,4 @@
-
+Experience life together rp like never before with rare Script for life together rp, the #1 Script. Includes infinite resources and aimbot for
 
 
 
